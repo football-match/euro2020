@@ -4,5 +4,5 @@
 ##### 12/06/2021 Wales vs Switzerland (2nd half) https://onedrive.live.com/embed?cid=8FA9B064C242D83B&resid=8FA9B064C242D83B%21105&authkey=AKbyMQ6Hu_KXEio
 ##### 12-13/06/2021 Denmark vs Finland (1st half) https://onedrive.live.com/embed?cid=2ACE8CBB3A87518F&resid=2ACE8CBB3A87518F%21105&authkey=AHiaXNpAj4P8-Is
 ##### 12-13/06/2021 Denmark vs Finland (2nd half)
-##### 13/06/2021 Belgium vs Russia (1st half)             (zero)
+##### 13/06/2021 Belgium vs Russia (1st half) <span style="color: red"> (zero) </span>
 ##### 13/06/2021 Belgium vs Russia (2nd half)
