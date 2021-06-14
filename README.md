@@ -17,3 +17,5 @@
 ##### 14/06/2021 Scotland vs Czech Republic (2nd half)
 ##### 14/06/2021 Poland vs Slovakia (1st half)
 ##### 14/06/2021 Poland vs Slovakia (2nd half)
+##### 15/06/2021 Spain vs Sweden (1st half)
+##### 15/06/2021 Spain vs Sweden (2nd half)
