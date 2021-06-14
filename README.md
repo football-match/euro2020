@@ -23,3 +23,5 @@
 ##### 15/06/2021 Hungary vs Portugal (2nd half)
 ##### 16/06/2021 France vs Germany (1st half)
 ##### 16/06/2021 France vs Germany (2nd half)
+##### 16/06/2021 Finland vs Russia (1st half)
+##### 16/06/2021 Finland vs Russia (2nd half)
