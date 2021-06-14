@@ -13,3 +13,5 @@
 ##### 13/06/2021 Austria vs North Macedonia (2nd half) `unavailable`
 ##### 14/06/2021 Netherlands vs Ukraine (1st half) `unavailable`
 ##### 14/06/2021 Netherlands vs Ukraine (2nd half) `unavailable`
+##### 14/06/2021 Scotland vs Czech Republic (1st half)
+##### 14/06/2021 Scotland vs Czech Republic (2nd half)
