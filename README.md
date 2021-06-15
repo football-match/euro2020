@@ -6,7 +6,7 @@
 ##### 13/06/2021 England vs Croatia https://football1234567890.000webhostapp.com/6.php
 ##### 13/06/2021 Austria vs North Macedonia https://football1234567890.000webhostapp.com/2.php
 ##### 14/06/2021 Netherlands vs Ukraine https://football1234567890.000webhostapp.com/3.php
-##### 14/06/2021 Scotland vs Czech Republic 
+##### 14/06/2021 Scotland vs Czech Republic https://football1234567890.000webhostapp.com/8.php
 ##### 14/06/2021 Poland vs Slovakia 
 ##### 15/06/2021 Spain vs Sweden 
 ##### 15/06/2021 Hungary vs Portugal 
