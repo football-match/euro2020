@@ -24,3 +24,4 @@
 ##### 19/06/2021 Portugal vs Germany 
 ##### 20/06/2021 Spain vs Poland 
 ##### 20/06/2021 Italy vs Wales 
+##### 20/06/2021 Switzerland vs Turkey 
