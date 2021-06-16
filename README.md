@@ -47,3 +47,6 @@
 ##### 03/07/2021 Quarterfinals:  
 ##### 03/07/2021 Quarterfinals:  
 ##### 04/07/2021 Quarterfinals:  
+##### 07/07/2021 Semi-finals:  
+##### 08/07/2021 Semi-finals:  
+##### 12/07/2021 Final: 
