@@ -36,3 +36,5 @@
 ##### 24/06/2021 Portugal vs France 
 ##### 24/06/2021 Germany vs Hungary 
 ##### 26/06/2021 Round of 16:  
+##### 27/06/2021 Round of 16:  
+##### 27/06/2021 Round of 16:  
