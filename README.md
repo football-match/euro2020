@@ -21,3 +21,4 @@
 ##### 18/06/2021 Croatia vs Czech Republic 
 ##### 19/06/2021 England vs Scotland 
 ##### 19/06/2021 Hungary vs France 
+##### 19/06/2021 Portugal vs Germany 
