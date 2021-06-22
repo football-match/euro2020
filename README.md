@@ -35,10 +35,10 @@
 ##### 23/06/2021 Slovakia vs Spain 
 ##### 24/06/2021 Portugal vs France 
 ##### 24/06/2021 Germany vs Hungary 
-##### 26/06/2021 Round of 16: Wales vs 
-##### 27/06/2021 Round of 16: Italy vs 
+##### 26/06/2021 Round of 16: Wales vs Denmark
+##### 27/06/2021 Round of 16: Italy vs Austria
 ##### 27/06/2021 Round of 16: Netherlands vs 
-##### 28/06/2021 Round of 16:  
+##### 28/06/2021 Round of 16: Belgium vs 
 ##### 28/06/2021 Round of 16:  
 ##### 29/06/2021 Round of 16:  
 ##### 29/06/2021 Round of 16:  
