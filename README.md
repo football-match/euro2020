@@ -37,12 +37,12 @@
 ##### 24/06/2021 Germany vs Hungary https://football1234567890.000webhostapp.com/46.php
 ##### 26/06/2021 Round of 16: Wales vs Denmark
 ##### 27/06/2021 Round of 16: Italy vs Austria
-##### 27/06/2021 Round of 16: Netherlands vs 
+##### 27/06/2021 Round of 16: Netherlands vs Czech Republic
 ##### 28/06/2021 Round of 16: Belgium vs Portugal
-##### 28/06/2021 Round of 16:  
-##### 29/06/2021 Round of 16:  
-##### 29/06/2021 Round of 16:  
-##### 30/06/2021 Round of 16:  
+##### 28/06/2021 Round of 16: Croatia vs Spain
+##### 29/06/2021 Round of 16: France vs Switzerland
+##### 29/06/2021 Round of 16: England vs Germany
+##### 30/06/2021 Round of 16: Sweden vs Ukraine
 ##### 02/07/2021 Quarterfinals:  
 ##### 03/07/2021 Quarterfinals:  
 ##### 03/07/2021 Quarterfinals:  
